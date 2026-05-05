@@ -1,4 +1,4 @@
-# 👋 yop c vggg
+#  yop c vggg
 
 **Développeur** | Coding & Projects.
 
