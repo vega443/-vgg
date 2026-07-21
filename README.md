@@ -11,7 +11,7 @@
 
 ### 🔗 Me trouver
 - 💬 **Discord** : [&vg](https://discord.com/users/349778609059266560)
-- 🔫 **Guns.lol** : [vegaontop](https://guns.lol/vegaontop)
+- 🔫 **Guns.lol** : [vegaontop](https://guns.lol/2wi)
 
 ---
 
